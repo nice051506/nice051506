@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nice051506
 - 👀 I’m interested in programmer
 - 🌱 I’m currently learning programmer and coding
-- 💞️ I’m looking to intership in Bankok
+- 💞️ I’m looking to intership in Bangkok
 - 📫 How to reach me email nattawutkajai6@gmail.com
 - ⚡ Fun fact: I'm beginner not pro programmer but But I'm interested in working and ready to learn 
 
